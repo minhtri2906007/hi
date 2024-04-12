@@ -1,4 +1,4 @@
-- 👋 Xin chào, @minhtri2906007!
+- 👋 Xin chào, I'am @minhtri2906007!
 - 
 👀 Tôi quan tâm đến việc học và phát triển kỹ năng lập trình.
 
